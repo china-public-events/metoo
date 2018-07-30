@@ -19,5 +19,9 @@
 
   * [紫牛新闻 / 支教女生洗澡被偷拍，偷拍者被处拘留，支教该如何防风险](http://www.yangtse.com/app/livelihood/2018-07-24/592620.html)
   
+  
+## 其他
+
+* [知乎 / 如何看待南大支教被性骚扰？](https://www.zhihu.com/question/286542814)
 
 
