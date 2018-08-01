@@ -26,7 +26,8 @@
 # 讨论
 
 * [转帖：刘瑜：关于metoo](https://matters.news/forum/?post=16439143-1a75-497a-bad2-875d2fcd5d28)
-
+  * [知乎 / 如何看待刘瑜关于Metoo的文章？](https://www.zhihu.com/question/287236158)
+  * [也关于metoo——驳刘瑜《关于metoo》](https://www.douban.com/note/684572575/)
 
 
 ### 贡献
