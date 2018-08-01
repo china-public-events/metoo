@@ -23,6 +23,11 @@
   * [07 作家春树爆曾被张弛，孙冕性侵](./2018/chun-shu.md)
   * [07 迷笛副总周翊性侵事件](./2018/zhou-yi.md)
   
-  
+# 讨论
+
+* [转帖：刘瑜：关于metoo](https://matters.news/forum/?post=16439143-1a75-497a-bad2-875d2fcd5d28)
+
+
+
 ### 贡献
 持续更新中，欢迎各种PR/Issue
