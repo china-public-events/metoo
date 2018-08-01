@@ -42,5 +42,5 @@
 
 ### 其他
 * [维基百科 / 庆阳女生跳楼事件](https://zh.wikipedia.org/wiki/%E5%BA%86%E9%98%B3%E5%A5%B3%E7%94%9F%E8%B7%B3%E6%A5%BC%E4%BA%8B%E4%BB%B6)
-* [今日说法 / 甘肃庆阳跳楼事件调查] (http://tv.cctv.com/2018/07/03/VIDEy5fpwSX3A7S8c52dQkCe180703.shtml)
+* [今日说法 / 甘肃庆阳跳楼事件调查](http://tv.cctv.com/2018/07/03/VIDEy5fpwSX3A7S8c52dQkCe180703.shtml)
 * [知乎专栏: 剑圣喵大师/ 甘肃女孩遭猥亵跳楼：其实，绝大多数自杀都是他杀 ](https://zhuanlan.zhihu.com/p/38482786)
